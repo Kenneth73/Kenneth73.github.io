@@ -1,5 +1,5 @@
 ## Kenneth Crasto  
-<img src="http://tiot.in/wp-content/uploads/2015/03/hacking.jpg" width="400">
+<img src="http://i.imgur.com/r6B1Exd.png" width="400">
 
 ## FAVOURITE : DESIGNING WEB PAGES
 

@@ -1,7 +1,7 @@
 ## Kenneth Crasto  
 
 ## HACKING, AN ART OF EXPLORING
-<img src="http://i.imgur.com/r6B1Exd.png" width="400">
+<img src="https://s-media-cache-ak0.pinimg.com/originals/44/41/7d/44417de181d07ddc7a30e0d869823623.jpg" width="400">
 
 ## FAVOURITE : DESIGNING WEB PAGES
 

@@ -13,7 +13,6 @@
 
 ## WE LIKE THUG LIFE
 
-https://play.google.com/store/apps/details?id=com.pixelsoft.thuglifephotocreatorpro
 
  **_THIS WEBSITE IS UNDER CONSTRUCTION_**
 

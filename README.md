@@ -11,8 +11,11 @@
 1. PULLING PRANKS AT OTHERS
 
 
- 
-**_THIS WEBSITE IS UNDER CONSTRUCTION_**
+## WE LIKE THUG LIFE
+
+https://play.google.com/store/apps/details?id=com.pixelsoft.thuglifephotocreatorpro
+
+ **_THIS WEBSITE IS UNDER CONSTRUCTION_**
 
 
 `
